@@ -4,7 +4,8 @@
 C++に興味がある人がslackで集まって会話をしています  
 
 ## 参加方法
-Twitterでいなむ先生@_EnumHackまでDMでメールアドレスを送ってくだされば招待します  
+登録フォーラムはこちら  
+http://goo.gl/forms/12z1zMNzxz  
 
 ## その他
 
